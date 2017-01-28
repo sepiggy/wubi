@@ -50,3 +50,130 @@
 ### 54 C 又巴马，丢矢矣
 
 ### 55 X 慈母无心弓和匕，幼无力
+
+
+
+## 易错字全码
+
+### 昨 JTHF
+
+### 凹 MMGD
+
+### 百 DJF
+
+### 拜 RDFH
+
+### 班 GYTG
+
+### 搬 RTEC
+
+### 扳 RRCY
+
+### 颁 WVDM
+
+### 版 THGC
+
+### 瓣 URCU
+
+### 半 UFK
+
+### 帮 DTBH
+
+### 薄 AIGF
+
+### 饱 QNQN
+
+### 豹 EEQY
+
+### 被 PUHC
+
+### 苯 ASGF
+
+### 迸 UAPK
+
+### 鼻THLJ
+
+### 笔 TTFN
+
+### 蓖 ATLX
+
+### 蔽 AUMT
+
+### 痹 ULGJ
+
+### 闭 UFTE
+
+### 敝 UMIT
+
+### 边 LPV
+
+### 变 YOCU
+
+### 辨 UYTU
+
+### 表 GEU
+
+### 秉 TGVI
+
+### 饼 QNUA
+
+### 播 RTOL
+
+### 博 FGEF
+
+### 哺 KGEY
+
+### 埠 FWNF
+
+### 擦 RPWI
+
+### 裁 FAYE
+
+### 材 SFTT
+
+### 睬 HESY
+
+### 餐 HQCE
+
+### 参 CDER
+
+### 残 GQGT
+
+### 藏 ADNT
+
+### 槽 SGMJ
+
+### 曹 GMAJ
+
+### 插 RTFV
+
+### 差 UDAF
+
+### 豺 EEFT
+
+### 馋 QNQU
+
+### 铲 QUTT
+
+
+
+
+
+
+
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
